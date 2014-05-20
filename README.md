@@ -11,4 +11,4 @@ I will attempt to keep the original BMJ MuleDump skins up to date with the newes
 * Vault
 
 
-I will also be putting my skins here. I if you want to add your skin here please pm me.
+I will also be putting my skins here. If you want to add your skin here please pm me.
